@@ -1,22 +1,16 @@
 # Ingrédients
 
-* 500g farine T00, à défaut T55 ou mélange des deux
-* 35g huile d'olive
-* 10g sel fin
-* 4g levure boulangère déshydratée
-* 300g d'eau tiède
+Pour 4 pâtes:
+
+* 1kg farine T00
+* 20g huile d'olive
+* 16g sel fin
+* 15g levure fraiche
+* 700g d'eau tiède
 
 # Étapes
 
-* Réhydrater le sachet de levure complet dans 2 cas. d'eau tiède
-* Mélanger eau, huile, sel
-* Ajouter farine
-* Ajouter la moitié de la levure (1 sachet = 8g)
-* Pétrir
-* Laisser reposer au four à 40 degrés dans un récipient couvert d'un torchon humide pendant au moins 2h
-* Abaisser en laissant des bords épais
-* Cuire au four puissance maximum
-
-# Remarques
-
-* Ne pas faire les bords trop épais, ils poussent beaucoup à la cuisson
+* Mélanger farine et levure
+* Ajouter une partie de l'eau et mélanger
+* Ajouter l'huile d'olive et le sel
+* Ajouter le reste de l'eau, ne pas tout mettre si pas nécessaire
