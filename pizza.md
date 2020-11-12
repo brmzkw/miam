@@ -29,3 +29,11 @@ Pour 2 pâtes:
 - ajouter l'eau à la farine
 - ajouter la levure
 - mélanger, laisser reposer
+
+
+Ou sinon (tester en premier), pour 4 pâtes :
+
+* 600ml water (room temperature)
+* 1kg 5 Stagioni Napoletana Pizza Flour, Tipo 00 (RED)
+* 30g salt
+* 1-2g fresh yeast (or half teaspoon of dry yeast)
