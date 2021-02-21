@@ -5,6 +5,7 @@
 * 2 échalotes
 * persil
 * 180g farine
+* 1 sachet levure chimique
 * 270g eau
 * jus de 1 ou 2 citrons
 * piment en poudre
